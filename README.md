@@ -15,7 +15,7 @@
 ![Whats![WhatsApp Image 2022-10-20 at 11 15 50](https://user-images.githubusercontent.com/71292030/196868061-997d3717-48f5-42e9-924f-50f71bbf47c7.jpeg)
 
 
-App Image 2022-10-20 at 11 15 50 (1)](https://user-images.githubusercontent.com/71292030/196868037-085006cb-538b-402a-b276-f10e1714c8ba.jpeg)
+![WhatsApp Image 2022-10-20 at 11 15 50 (1)](https://user-images.githubusercontent.com/71292030/196868037-085006cb-538b-402a-b276-f10e1714c8ba.jpeg)
 
 ![WhatsApp Image 2022-10-20 at 11 15 50 (2)](https://user-images.githubusercontent.com/71292030/196868301-b7a1c2dd-3c28-4a86-b173-926be18f8d52.jpeg)
 
